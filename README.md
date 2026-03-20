@@ -59,8 +59,8 @@
 
 ## 📫 Contact Me
 
-- Telegram: @your_tag
-- Email: your@email.com
+- Telegram: @IamNotDaniil
+- Email: friday2night2funking@gmail.com
 
 ---
 
